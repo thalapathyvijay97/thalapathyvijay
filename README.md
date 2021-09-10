@@ -1,4 +1,2 @@
 # thalapathyvijay
 THALAPATHY
-
-1936099118:AAG7BCctAQtckx7YPViGFY4ywq9-FqcQH2A
